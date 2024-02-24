@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **trevor@tcarmack.com**
 
-- 📄 Know about my experiences [tcarmack.com/resume](tcarmack.com/resume)
+- 📄 Know about my experiences [tcarmack.com](tcarmack.com)
 
 - ⚡ Fun fact **Hippos can't fly**
 
